@@ -1,11 +1,6 @@
 # Next one
 ## Welcomeback
 ## Try to save this sheet
-'''''
-___
-'''''
-## New changes
-## WIN WIN Win
-## No /// not win
-### ffff
-## Трам парам пам пам 
+### make love not war
+## all you need is love
+## try to save it now
